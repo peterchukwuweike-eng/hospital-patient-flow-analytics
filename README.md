@@ -135,7 +135,7 @@ The **Healthcare Patient Flow Dashboard** provides insights into:
 
 ---
 
-**LinkedIn**: [username](linkedin.com/in/peter-chukwuweike-22490a421) 
+**LinkedIn**: [https://www.linkedin.com/in/peter-chukwuweike-22490a421](https://www.linkedin.com/in/peter-chukwuweike-22490a421) 
 
 
 
